@@ -1,1 +1,0 @@
-# HACKEN-trading-signaux
